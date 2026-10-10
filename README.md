@@ -30,6 +30,7 @@ Je construis des outils concrets pour les commerces, les jeunes et les étudiant
 ## 📫 Me contacter
 
 - 📧 dougadiarra7325@gmail.com
+- 💼 LinkedIn : https://www.linkedin.com/in/douga-diarra-1b2129390
 - 📲 WhatsApp : +223 73 25 58 73
 - 📍 Bamako, Mali
 
